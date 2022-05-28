@@ -9,3 +9,4 @@ Totaliss bet 1K subs ($5000) that BBG could not hit Rank 1 in LoR with Annie Ez.
 5. Lump Sum Payment.png
 6. Flight.png
 7. Merciful Bbg.png
+8. Gifted Sub.png
